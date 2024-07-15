@@ -24,6 +24,8 @@ https://nootropics.com.ua/
 <hr>
 material:
 1 <a href=https://www.youtube.com/watch?v=oPEdDcs_8ZQ>GOD IN NEURONS - The Theory of Everything by Athene.</a>
+2 Мухаммед Али - интервью https://www.youtube.com/shorts/htkh0xO1tuc
+3 https://ru.wikipedia.org/wiki/Болезнь_Паркинсона
 
 <h1>coming soon</h1>
 
