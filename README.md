@@ -2,14 +2,18 @@
 prj: problem CLEAR MIND and Muhammad Ali 
 (The Neurons and chemistry, nootropics and neuros disease, etc) 
 
-**problem: **
+<h1> main problem and goal:</h1>
 
-**START: **
+<b>START:</b>
+
 <a href="https://www.youtube.com/watch?v=jkhpZoPOfZI">Muhammad Ali - Amazing Speed</a> - "Float like a butterfly, sting like a bee, your hands can not hit what your eyes can not see" ("Порхай,как бабочка, жаль, как пчела. Твои руки не могут ударить то, что не видят глаза").
 
-**FINISH: **
+<b>FINISH:</b>
+
 eurodegenerative diseases Alzheimer's disease and Parkinson's disease
-  (нейродегенеративные заболевания болезнь Альцгеймера и Болезнь Паркинсона)
+(нейродегенеративные заболевания болезнь Альцгеймера и Болезнь Паркинсона)
+
+за всє в етой жизни нажа платить !
 <hr>
 #000 "Когда уже поздно пить Боржоми":
 <i>Ноотропы — это нейрометаболические стимуляторы, которые оказывают положительное действие на сложноорганизованные психофизиологические процессы. Механизм их действия связан с восстановлением биоэнергетических и метаболических функций нейрона, а также нейромедиаторных систем головного мозга.</i>
