@@ -13,6 +13,7 @@ eurodegenerative diseases Alzheimer's disease and Parkinson's disease
 (нейродегенеративные заболевания болезнь Альцгеймера и Болезнь Паркинсона)
 
 <h2>За всё в этой жизни надо платить!
+  
 (3 минуты на ринге и потом 30 лет жизни отчаянного сопративленя болезни).
 </h2>
 <hr>
@@ -25,7 +26,7 @@ https://nootropics.com.ua/
 а вначале, повысить осознавание происходящих процессов.</i></h3>
 
 <hr>
-<h1>СБОР МАТЕРАЛОВ:</h1>
+<h2>СБОР МАТЕРАЛОВ:</h2>
 
 1 <a href="https://www.youtube.com/watch?v=oPEdDcs_8ZQ">GOD IN NEURONS - The Theory of Everything by Athene.</a>
 
