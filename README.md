@@ -34,10 +34,28 @@ corrent:
 
 <h2>prj  СБОР МАТЕРАЛОВ:</h2>
 
-1 <a href="https://www.youtube.com/watch?v=oPEdDcs_8ZQ">GOD IN NEURONS - The Theory of Everything by Athene.</a>
+1 Dr. Berg - официальный русскоязычный канал ||  Старение мозга: Как замедлить? Что мешает этому? (русская озвучка) https://www.youtube.com/watch?v=yFpPl0S4PkY
 
-2 Мухаммед Али - интервью  https://www.youtube.com/shorts/htkh0xO1tuc
+2 Лучший способ увеличить число нейронных связей https://www.youtube.com/watch?v=CpwBi1veWR0
 
-3 https://uk.wikipedia.org/wiki/Хвороба_Паркінсона
+3 Как ускорить восстановление нервных клеток в 5 раз?🔊 https://www.youtube.com/watch?v=5-Uv8yL9wQA
+
+4 Как улучшить работу мозга? Лучший нутриент для мозга🧠 https://www.youtube.com/watch?v=DW-bv09yRew
+
+5 Как вырастить новые нейроны и как мозг сам себя лечит https://www.youtube.com/watch?v=Vfvo7bmvhZM
+
+6 Мозгу нужна только глюкоза? Бред! (русская озвучка) https://www.youtube.com/watch?v=4F5nTWYpSSw
+
+7 Как Тренировать Мозг | Татьяна Черниговская https://www.youtube.com/watch?v=ddVAB2ohMGU
+
+8 Нейробиолог: Обмани свой мозг! Ты будешь мотивированным каждый день https://www.youtube.com/watch?v=JzGDsl0DpAY
+
+9 Используй правило 2-х минут. Ты будешь поражён своими результатами! https://www.youtube.com/watch?v=iFDj5eoB3f4
+
+10 https://uk.wikipedia.org/wiki/Хвороба_Паркінсона
+
+11 <a href="https://www.youtube.com/watch?v=oPEdDcs_8ZQ">GOD IN NEURONS - The Theory of Everything by Athene.</a> ru version https://www.youtube.com/watch?v=xZIirIEjSm0
+
+12 Мухаммед Али - интервью  https://www.youtube.com/shorts/htkh0xO1tuc
 
 <h1>UPDATE Coming soon!</h1>
