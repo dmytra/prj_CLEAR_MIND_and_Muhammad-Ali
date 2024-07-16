@@ -25,7 +25,7 @@ https://nootropics.com.ua/
 а вначале, повысить осознавание происходящих процессов.</i></h3>
 
 <hr>
-ПОТОМУ, СБОР МАТЕРАЛОВ:
+<h1>СБОР МАТЕРАЛОВ:</h1>
 
 1 <a href="https://www.youtube.com/watch?v=oPEdDcs_8ZQ">GOD IN NEURONS - The Theory of Everything by Athene.</a>
 
