@@ -62,4 +62,6 @@ corrent:
 
 14 Как научиться чему угодно в 20 раз быстрее - Нейроученый https://www.youtube.com/watch?v=wIVst5U9wDM
 
+15 Топ-3 добавки для повышения производительности от НЕЙРОУЧЕНОГО https://www.youtube.com/watch?v=Sc92rHfJots
+
 <h1>UPDATE Coming soon!</h1>
