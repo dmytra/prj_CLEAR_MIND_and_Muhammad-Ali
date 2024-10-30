@@ -64,4 +64,39 @@ corrent:
 
 15 Топ-3 добавки для повышения производительности от НЕЙРОУЧЕНОГО https://www.youtube.com/watch?v=Sc92rHfJots
 
+16 Как быстро и эффективно научиться чему угодно? 10 принципов. Обзор книги https://www.youtube.com/watch?v=k_tBtJ3IjxU
+
+17 как учиться эффективно https://www.youtube.com/watch?v=DHFO2wG6CLk
+
+Речь, изменившая тысячи жизней! Арнольд Шварценеггер https://www.youtube.com/shorts/EuFfOs8cYSE
+
+Арнольд Шварценеггер - Величайшая Речь Которая Взорвала Интернет! Эта Мотивация Изменит Твою ЖИЗНЬ! https://www.youtube.com/watch?v=ywCmXWub1FY
+
+Мухаммед Али интервью полная версия https://www.youtube.com/watch?v=Tssh09MI1Ns
+
+Мухаммед Али интервью полная версия https://www.youtube.com/watch?v=Tssh09MI1Ns
+
+Мухаммед Али видео 1981 | Мухаммад Али  https://www.youtube.com/watch?v=FXy6TGr1b4I
+
+ Брюс Ли - забытое интервью - Bruce Lee The Lost Interview 1971 https://www.youtube.com/watch?v=HXmoyIr33DI
+
+Великая речь Мухаммеда Али. https://www.youtube.com/watch?v=GangdclKpwk
+
+Как Выучить ЛЮБОЙ Язык Быстро (первые 6 месяцев). https://www.youtube.com/watch?v=_NturIsviCM
+
+Как Учиться В 2 Раза Быстрее С Техникой Фейнмана (Пример) https://www.youtube.com/watch?v=YRXFUzzUYnw
+
+Как учиться ПРАВИЛЬНО, ЭФФЕКТИВНО и БЫСТРО https://www.youtube.com/watch?v=OoRqKJJ_XAE 
+
+Распорядок дня Нейроученого - Делай это каждый день и твоя жизнь изменится! https://www.youtube.com/watch?v=fyf2XdnmRRI
+
+Как учиться и запоминать БЫСТРЕЕ https://www.youtube.com/watch?v=sVMrA7O7zXU
+
+НЕЙРОУЧЕНЫЙ: У вас больше никогда не будет недостатка в мотивации https://www.youtube.com/watch?v=wEAT1z7B6d0
+
+Какие БАДы нужны всем людям. Мнение Эндокринолога. https://www.youtube.com/watch?v=DyRz257-GmE
+ 
+Нейроученый: Этот Метод Быстро Вылечил Меня от Прокрастинации https://www.youtube.com/watch?v=dVhBiI7sVm8
+
+
 <h1>UPDATE Coming soon!</h1>
