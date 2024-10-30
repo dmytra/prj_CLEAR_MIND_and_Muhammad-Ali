@@ -58,4 +58,8 @@ corrent:
 
 12 Мухаммед Али - интервью  https://www.youtube.com/shorts/htkh0xO1tuc
 
+13 НЕЙРОУЧЕНЫЙ: Как Учиться в 10 раз БЫСТРЕЕ https://www.youtube.com/watch?v=3gMSP0olx2k
+
+14 Как научиться чему угодно в 20 раз быстрее - Нейроученый https://www.youtube.com/watch?v=wIVst5U9wDM
+
 <h1>UPDATE Coming soon!</h1>
