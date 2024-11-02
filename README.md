@@ -133,7 +133,7 @@ Bison Mentality https://www.youtube.com/@BisonMentality/
 
 Dr. Berg - официальный русскоязычный канал https://www.youtube.com/@DrEricBerg
  
-Мозгоправ https://www.youtube.com/@mozgoprav_official
+<s>Мозгоправ https://www.youtube.com/@mozgoprav_official</s>
 
 Татьяна Черниговская https://www.youtube.com/results?search_query=Татьяна+Черниговская
 
