@@ -156,4 +156,8 @@ https://youtu.be/J-nfXNYan28?si=QQZXftO7LqsZhu0-
 Навчитися вчитися 2 частина
 https://youtu.be/vbm_t5qSBsE?si=bqGV7PXOYR4uLW5L
 
+====
+21/12/2024 Открытый вебинар с Д.В. Алексеевым ⚡️🧠 «РАЗВИТИЕ АЛЬТЕРНАТИВНЫХ СПОСОБНОСТЕЙ МОЗГА»🧠⚡️
+https://www.youtube.com/watch?v=MloTbeWROSg
+
 <h1>UPDATE Coming soon!</h1>
